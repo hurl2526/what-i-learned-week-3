@@ -1,1 +1,1 @@
-# what-i-learned-week-3
+# What I Learned Week 3
